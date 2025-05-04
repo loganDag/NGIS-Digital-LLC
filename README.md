@@ -23,6 +23,10 @@ For out Terms of Service and Privacy Policy please click the links below
 - Email [Here ](mailto:legal@nexgenit.digital)in order to reach the legal team
   
 
+Got any suggestions?
+
+ Go [Here](https://github.nexgenit.digital) to drop your suggestions and share with others as well.
+
 ---
 
-> Last updated: 4/30/2025 at 0529 EDT
+> Last updated: 5/2/2025 at 2247 EDT
